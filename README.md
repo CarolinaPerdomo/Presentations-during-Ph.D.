@@ -13,7 +13,7 @@ Examples where my communication skills have been decisive:
 
 ### The preliminary results of the first article were presented at the national event "Encontro Virtual de Teoría de Campos", held on December 2-4, 2020:
 
-- A video [poster](https://www.youtube.com /watch?v=UPu9YLNv4GU) was prepared to be presented.
+- A video [poster](https://www.youtube.com/watch?v=UPu9YLNv4GU) was prepared to be presented.
 
 ### The 2 published articles were also presented at 2 international conferences:
 
